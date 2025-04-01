@@ -37,3 +37,6 @@ My goals include:
 If you have any advice or resources for a beginner like me, feel free to reach out. I’m always open to learning from others and would love to hear about your experiences or suggestions on how to improve.
 
 
+Feel free to connect with me on: shilaacharyaa2@gmail.com
+
+
